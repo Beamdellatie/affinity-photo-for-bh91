@@ -1,4 +1,4 @@
-
+Enhance Affinity Photo for macOS with Affinity Photo for macOS secure Preset - version history and cloud sync, the #1 preset. Includes version history and cloud sync for a
 
 
 
